@@ -11,9 +11,8 @@ hi my names robert or danny, call me wtv you know me as i dont mind
 
 `IM 16 AND HAVE A BF PLS BE APPROPRIATE GIVEN THOSE 2 FACTS`
 
-
 ![IMG_1526](https://github.com/user-attachments/assets/ab1920ef-fcc4-4928-98db-b84680c8670c)
 
-worlds #1 scientific asisstant
+evil little dan cain and robert reynolds kinner kinnie whatevs so cool
 
-worlds self-proclaimed #1 dan cain relater
+worlds #1 assistant
