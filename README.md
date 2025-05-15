@@ -1,12 +1,3 @@
 ## RD 🖤 ℳ
 
-"buh"
-
-Robert / Danny
-
-OR ANYTHING YK ME BY IF FRIEND
-
-![IMG_1457](https://github.com/user-attachments/assets/e01858a8-fcd4-4743-b08c-5d08b2133960)
-
-He / Him only as im a male
-im 16
+![IMG_1322](https://github.com/user-attachments/assets/f083edc2-95dd-4ba5-8f55-9710f38c2adb)
