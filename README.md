@@ -8,3 +8,5 @@ Take this flood of empty thoughts — And tell me what to do
 HE / HIM
 
 hi my names robert or danny, call me wtv you know me as i dont mind
+
+`IM 16 AND HAVE A BF PLS BE APPROPRIATE GIVEN THOSE 2 FACTS`
